@@ -106,7 +106,9 @@ https://tamil.filmibeat.com/photos/sanjana-natarajan-lesbian-themed-photoshoot-p
 
 <img width="1088" height="992" alt="image" src="https://github.com/user-attachments/assets/172c8aec-a779-49e1-be1d-509696473374" />
 
+<img width="1365" height="768" alt="image" src="https://github.com/user-attachments/assets/74de9b12-db53-4192-9972-222c02339d79" />
 
+<img width="1365" height="768" alt="image" src="https://github.com/user-attachments/assets/cadf6e94-839c-462f-9563-e6b872693587" />
 
 
 
